@@ -1,1 +1,1 @@
-# lab2-pr-ject
+# lab2-pr-ject izmenenia 1
